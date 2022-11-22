@@ -12,7 +12,7 @@
 
 - Requirements [15mb Of Disk Space.]
  # Supported Windows versions
- Windows 10 All Versioms.
+ Windows 10 All Versions.
  Windows 11-22H2.
  [Discord](https://discord.gg/Fs6vKCDyhA)
 
