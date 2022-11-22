@@ -8,7 +8,7 @@
 -  Unlocks Emblems
 -  Unlocks Blue Prints
 
-# Completely Undetected Using New Method, if you have any questions feel free to join the discord and open a ticket or dm me.
+# Completely Undetected Using New Method, Join the discord for download.
 
 - Requirements [15mb Of Disk Space.]
  # Supported Windows versions
