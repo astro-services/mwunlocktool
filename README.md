@@ -9,6 +9,7 @@
 -  Unlocks Blue Prints
 
 # Completely Undetected Using New Method, Join the discord for download.
+[Discord](https://discord.gg/Fs6vKCDyhA)
 
 - Requirements [15mb Of Disk Space.]
  # Supported Windows versions
